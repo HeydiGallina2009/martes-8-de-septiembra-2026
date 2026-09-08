@@ -1,4 +1,4 @@
-# martes-8-de-septiembra-2026
+# martes-8-de-septiembre-2026
 # 5:50 Despertar
 Me desperté y baje de la cama para arreglarme y ponerme el uniforme
 # 6:25 Arreglar todo
